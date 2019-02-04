@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-George met the Unicorn King who granted him magic powers. And then ate him.
+George met the Unicorn King who granted him magic powers. And then ate him. And then there was a Koala that appeared, and George ate him too. Yum!
 The end.
 
 ## Cast
